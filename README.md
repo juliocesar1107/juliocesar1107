@@ -1,4 +1,4 @@
-### ola! Eu sou juliocesar1107 Sou Estudante de Analise e desenvolvimento de Sistemas!
+### ola! Eu sou juliocesar1107 sou estudande e atleta!
 
 <div align="center">
   <a href="https://github.com/juliocesar1107">
